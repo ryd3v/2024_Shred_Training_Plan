@@ -94,3 +94,17 @@ warmed up, you don't need to do warm up sets and reps again, just go right to he
 ### Abdominal
 
 - Ab Crunch
+
+----
+
+## Diet
+
+My diet is pretty straightforward, I eat only eggs and egg whites for breakfast with oatmeal. Other meals consist of
+fish and
+broccoli, or another green vegetable. I have a shake when I wake up, and a shake pre-and post training and one during
+the day if I need some extra protein. I have rice sparingly.
+
+No coffee, processed foods, breads, no sugar, juice pop or beer. And no cheat days. 12-week regiment.
+
+My current macros are 305g protein, 200g carbs, 104g fat. I try to keep my cals close to 2600 kCal, no more than 2800.
+With this, I'm dropping 2–4 lbs per week. Your diet plan will be different, but this is for my calculations for my body.  
