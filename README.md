@@ -18,6 +18,11 @@ group trained.
 - Saturday: Legs
 - Sunday: Shoulders, Traps, Abs and Hips
 
+#### Cardio:
+
+- I do 20 minutes in the morning before breakfast if I can get to the machines, otherwise I usually do 10 minutes before
+  each workout. You can adjust for your needs.
+
 ----
 
 ## Exercises
